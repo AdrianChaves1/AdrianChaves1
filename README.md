@@ -10,3 +10,4 @@ como entrar em contato comigo
 1. nao entre
 2. a nao ser se for asunto sério
 BLZ
+![](https://media1.tenor.com/m/XprpuH1iQNkAAAAd/ronaldo.gif)
